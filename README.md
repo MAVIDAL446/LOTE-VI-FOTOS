@@ -1,0 +1,1 @@
+# LOTE-VI-FOTOS
